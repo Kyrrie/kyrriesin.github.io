@@ -1,1 +1,0 @@
-# kyrriesin.github.io
